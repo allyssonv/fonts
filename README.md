@@ -1,1 +1,1 @@
-Lista de fontes selecionadas via Google Fonts
+Lista de fontes selecionadas via Google Fonts.
